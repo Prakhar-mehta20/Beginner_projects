@@ -1,1 +1,1 @@
-# Begineer_projects
+# Beginner_projects
